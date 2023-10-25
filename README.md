@@ -8,3 +8,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Muhammad Arfan, [LinkedIn](https://www.linkedin.com/in/muhammad-arfan-933913293/)
